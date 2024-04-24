@@ -22,7 +22,7 @@ More like "documentations" of what I think and develop along the way.
 
 So, I will try to explain stuff, reference stuff, and deprive myself of a healthy sleeping pattern.
 
-I guess I should learn to drink coffee. [But it tends to go poorly for me.](https://coffeeaffection.com/why-does-coffee-make-you-pee/)
+I guess I should learn to drink coffee, [albeit that it tends to go poorly for me.](https://coffeeaffection.com/why-does-coffee-make-you-pee/)
 
 And learn to live better, [if there is even a notion of "better" in it.](https://en.wikipedia.org/wiki/Moral_nihilism)
 
