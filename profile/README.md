@@ -2,10 +2,6 @@
 
 Vague.
 
-And as much as I want to exist, it becomes apparent to me that, well, I have nothing to put on the table to begin with.
-
-I am egotistical and, at the same time, fragile.
-
 I want to strive for greatness but am afraid of the uncertainty of my future.
 
 So, I created this collection of my works.
